@@ -1,2 +1,1 @@
-# mutturaj triveni
-married
+# mutturaj 
